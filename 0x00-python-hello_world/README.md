@@ -1,1 +1,1 @@
-nice python im ready
+python i am ready
